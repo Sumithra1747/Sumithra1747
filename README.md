@@ -1,4 +1,4 @@
-Hi , I'm Sumithra k...
+Hi , I'm Sumithra k
 Passionate engineering student having a strong interest in the Software development.
 
 
